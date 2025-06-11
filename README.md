@@ -14,7 +14,6 @@
 - 🧪 Experimenting with real-world vulnerabilities
 ---
 
-## 🤝 Connect With Me
   Signal: @masonfisher.83
 ---
 
