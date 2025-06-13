@@ -1,4 +1,4 @@
-# 🔐 16 y/o Cybersecurity kid | 🛠️ Hardware & On-Site Security Focused  
+# 🔐 16 y/o Cybersecurity | 🛠️ Hardware & On-Site Security Focused  
 ## 🎯 Passionate about ethical hacking, physical security systems.
 ---
 
